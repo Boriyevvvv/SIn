@@ -1,0 +1,3 @@
+
+
+// bitta vaqtda bitta amaliyot
